@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Htshidada
+- 🌱 I’m currently learning coding under fnb app academy.
+- i am excited and looking forward on this new experience.
